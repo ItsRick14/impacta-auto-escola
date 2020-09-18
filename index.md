@@ -26,7 +26,7 @@ Noite Das 19:00 Às 22:50<BR>
 Sábado: Das 08:00 Às 11:50<BR>
 
 ### contate-nos 
-Emai: impactaautoescola@gmail.com>br>
+Emai: impactaautoescola@gmail.com<br>
 Número: 4738-8252<br>
 
 ### endereço 
